@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Scratch417
+- 👀 I’m interested in codeing
+- 🌱 I’m currently learning codeing
+- 💞️ I’m looking to collaborate on roblox studo
+- 📫 How to reach me no pls no
+- 😄 Pronouns: IDK
+- ⚡ Fun fact: uhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
